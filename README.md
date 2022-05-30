@@ -1,0 +1,4 @@
+- 16 Anos
+- Belo Horizonte - Minas Gerais
+- Programador iniciante
+- Em busca de emprego home office
